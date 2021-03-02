@@ -27,7 +27,7 @@
 ## Experience
 
 ## Education
-1. 
+IT Univer 18/09/2009 - 11/12/2019. Intensive course mobile application design. Company 65 apps
 
 ## English
 A0 (Basic knowledge)
